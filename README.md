@@ -32,7 +32,7 @@ In my third year, I will be studying at Université Laval in Canada, focusing on
 
 ## 📫 Get in Touch
 
-Email: [your.email@example.com]
+Email: eliott.peaudeau@etu.u-bordeaux.fr
 
 
 
