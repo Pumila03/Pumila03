@@ -30,7 +30,7 @@ I'm a third-year Computer Science student at the University of Bordeaux with a s
 
 ## 🌍 International Journey
 
-During my third year, I will be study at Université Laval in Canada, focusing on cybersecurity courses as part of my international program.
+During my third year, I will study at Université Laval in Canada, focusing on cybersecurity courses as part of my international program.
 
 ## 📫 Get in Touch
 
