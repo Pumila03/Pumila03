@@ -34,7 +34,7 @@ During my third year, I will study at Université Laval in Canada, focusing on c
 
 ## 📫 Get in Touch
 
-Email: eliott.peaudeau@etu.u-bordeaux.fr
+Email: eliott.peaudeau@gmail.com
 
 
 
